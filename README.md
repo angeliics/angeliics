@@ -7,7 +7,7 @@
 <p/>
   
 <p align="center">  
-<a href="https://tam.atabook.org/)">atabook<a/>⠀⠀⠀<a href="https://ttaamm.carrd.co/">crrd<a/>⠀⠀⠀⠀<a href="https://linktr.ee/ttamy">socials<a/>
+<a href="https://tam.atabook.org/">atabook<a/>⠀⠀⠀<a href="https://ttaamm.carrd.co/">crrd<a/>⠀⠀⠀⠀<a href="https://linktr.ee/ttamy">socials<a/>
 <p/>
     
 
